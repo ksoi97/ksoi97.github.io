@@ -1,1 +1,0 @@
-# ksoi97.github.io
